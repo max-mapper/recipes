@@ -13,6 +13,7 @@ Which was adapted from *BBC Good Food 101 Slow Cooker Favourites*
 - 400g can chickpeas, rinsed and drained
 - small handful coriander, chopped (I think this is supposed to be cilantro)
 - 3 tablespoons fat-free Greek yoghurt
+- 1 cup of pecan halves, roughly chopped
 
 
 ## Instructions
