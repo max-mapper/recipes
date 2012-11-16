@@ -19,3 +19,7 @@ Which was adapted from *BBC Good Food 101 Slow Cooker Favourites*
 
 Heat the slow cooker if necessary.  Mix the oil, onion and curry paste in the slow cooker pot, throw in the squash/pumpkin and give it a good stir, then add the tomatoes and chickpeas. Cover and cook on LOW for 6-8 hours until the squash/pumpkin is tender.
 Turn off the heat and stir through the yoghurt and coriander. Serve with the rice and some chappatis, if you like.
+
+## Notes
+
+Needs moar coconut milk.
